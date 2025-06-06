@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Debojyoti Nandy. 
 - 👀 I’m interested in developing apps,games and websites.
-- 🌱 I’m currently learning in Class 6.
+- 🌱 I’m currently learning in Class 9.
 - 💞️ I’m looking to collaborate on apps.
 - 📫 How to reach me ...
 
